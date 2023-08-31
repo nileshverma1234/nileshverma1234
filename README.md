@@ -3,7 +3,7 @@
 
 - 📫 How to reach me **nilesh.verma.1502@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/10zn_aYRqx1H1hxkrwlhtv4jgOfqMpRu1/view?usp=sharing](https://drive.google.com/file/d/10zn_aYRqx1H1hxkrwlhtv4jgOfqMpRu1/view?usp=sharing)
+- 📄 Know about my experiences [RESUME](https://drive.google.com/file/d/10zn_aYRqx1H1hxkrwlhtv4jgOfqMpRu1/view?usp=sharing)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
